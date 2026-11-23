@@ -35,8 +35,8 @@
 *   **Financial Exploitation:** Partha spent 7-8 lakhs on her (still paying debt), while she was stingy with her own money but demanded gifts/standards from him.
 *   **Control:** She micromanaged his behavior (eating, dressing, walking).
 *   **The Breakup:**
-    *   She claimed she left because Partha was "happy with Vaishnavi" (a friend).
-    *   **Analysis:** She was likely planning to leave earlier (citing financial status, astrology, parents) and used the Vaishnavi incident as a convenient scapegoat to shift blame.
+    *   She claimed she left because Partha was "happy with someone" (a friend).
+    *   **Analysis:** She was likely planning to leave earlier (citing financial status, astrology, parents) and used the someone incident as a convenient scapegoat to shift blame.
 *   **"Reactive Abuse":** Partha questioned his own behavior ("I scolded her").
     *   **Insight:** This was identified as reactive abuse—Partha reacting to prolonged neglect, betrayal, and pain, rather than being the aggressor.
 

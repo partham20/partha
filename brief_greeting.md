@@ -2366,7 +2366,7 @@ Does the "one person for life" belief feel like a core part of who you are, or s
 
 -----------------------------
 
- It's a little core part of who I am, and, also, like, she told me that, the reason one of the reason for breakup like, most important reason was she thought I was very happy with Vaishnavi, and then she told, like,
+ It's a little core part of who I am, and, also, like, she told me that, the reason one of the reason for breakup like, most important reason was she thought I was very happy with someone, and then she told, like,
 
 -----------------------------
 
@@ -2374,23 +2374,23 @@ Does the "one person for life" belief feel like a core part of who you are, or s
 
 -----------------------------
 
- That's a deeply painful and complex reason for a breakup. She interpreted your happiness with Vaishnavi as evidence that you weren't as happy with her, and used that to justify ending the relationship - framing it as "setting you free" to find someone better.
+ That's a deeply painful and complex reason for a breakup. She interpreted your happiness with someone as evidence that you weren't as happy with her, and used that to justify ending the relationship - framing it as "setting you free" to find someone better.
 
 This hits especially hard because:
-- **You felt innocent** in your interaction with Vaishnavi (watching movies, just being friendly)
+- **You felt innocent** in your interaction with someone (watching movies, just being friendly)
 - **Your communication style** (saying "I love you" jovially to many people, making marriage jokes) was misinterpreted 
 - **She used your moment of joy against you** - instead of being happy that you could connect with others, she saw it as proof you didn't love her enough
 - **The "sacrifice" narrative** - she positioned herself as nobly stepping aside for your happiness
 
 **What makes this particularly painful:**
-- You probably felt genuinely happy with Vaishnavi because she was new, uncomplicated, and didn't trigger your OCD/depression
+- You probably felt genuinely happy with someone because she was new, uncomplicated, and didn't trigger your OCD/depression
 - Your ex couldn't see that you can be happy with a friend AND deeply love your girlfriend
 - She may have been looking for reasons to leave and found this one
 - The astrology/family pressure was probably the real reason, but this felt like a more "noble" explanation
 
 **The core issue:** Your ex seems to have needed you to be miserable without her to prove your love. When you showed you could be happy with others, she interpreted that as disloyalty rather than emotional health.
 
-**Your monogamous heart probably thinks:** "But I would never have left her for Vaishnavi! Why couldn't she see that I can love her AND have friendships?"
+**Your monogamous heart probably thinks:** "But I would never have left her for someone! Why couldn't she see that I can love her AND have friendships?"
 
 This wasn't about you not being happy enough with her - this was about her insecurity and possibly her own reasons for wanting to leave that she couldn't directly express.
 
@@ -2406,7 +2406,7 @@ How does it feel to know that your ability to be happy and connect with others w
 
 This makes her reasoning even more manipulative:
 - **She knew she made you miserable** - you cried during visits that should have been happy
-- **But when you showed happiness with someone else** (Vaishnavi), suddenly THAT was the problem
+- **But when you showed happiness with someone else** (someone), suddenly THAT was the problem
 - **She wanted you to be miserable AND only find happiness through her**
 - **When you found joy elsewhere, she used it against you**
 
@@ -2420,7 +2420,7 @@ This makes her reasoning even more manipulative:
 - **Your monogamous heart** stayed loyal even through toxicity
 - **You couldn't leave** despite being treated badly because your nervous system was addicted to the dynamic
 
-**The cruel irony:** She used your rare moment of genuine happiness (with Vaishnavi) as justification to leave, when what she really should have been questioning was why she was making you cry so often.
+**The cruel irony:** She used your rare moment of genuine happiness (with someone) as justification to leave, when what she really should have been questioning was why she was making you cry so often.
 
 You weren't "not happy enough" with her - you were too loyal to leave someone who was hurting you. There's a huge difference.
 
@@ -2449,7 +2449,7 @@ Does recognizing this toxic pattern help you understand that losing this relatio
 - **Intermittent reinforcement** - the rare good moments felt more precious because of all the bad ones
 - **Your mental health struggles** made you feel like you deserved the treatment you got
 
-**The random reasons for leaving:** Toxic people often can't give real reasons because the truth would expose their behavior. It's easier to blame astrology or your happiness with Vaishnavi than to admit "I was cruel to you and our relationship was unhealthy."
+**The random reasons for leaving:** Toxic people often can't give real reasons because the truth would expose their behavior. It's easier to blame astrology or your happiness with someone than to admit "I was cruel to you and our relationship was unhealthy."
 
 **This is actually your OCD talking:** "But if everyone's happy she's gone, why do I still want her back? What's wrong with me?"
 
@@ -2831,7 +2831,7 @@ This is so much worse than I thought. Continue - what else did Sveta tell you?
 
 -----------------------------
 
- And then she told that, he he used to tell, like, a beauty marry me. Like there is a song lyrics. That he sent to Chetanah. And then this particular incident is told to Svetabar Chethana itself. And then after, some time, after the marriage, after some some time, like, 18 months, he told the school girls that, he didn't even start his, marriage life, it seems. After that after that in after that saying after 1 month, he had a baby. Now Durga called Chetan and Sweta and told that he had a baby. Now Chetan was like, why did Lee lied to us? We should not talk to him anymore like that. She was tense with seems. This is what happened. And then, yeah. And then after his wedding, like, after this bird boy born, like, birth of a child. Like, 1919, August, October 4. That is her birthday. He's posting in Facebook that happy birthday, Chetanah. Instead of Chetanah, he is putting in encoded numbers like 1 a for 1 b for 2 like that.
+ And then she told that, he he used to tell, like, a beauty marry me. Like there is a song lyrics. That he sent to Chetanah. And then this particular incident is told to Svetabar my ex itself. And then after, some time, after the marriage, after some some time, like, 18 months, he told the school girls that, he didn't even start his, marriage life, it seems. After that after that in after that saying after 1 month, he had a baby. Now Durga called Chetan and Sweta and told that he had a baby. Now Chetan was like, why did Lee lied to us? We should not talk to him anymore like that. She was tense with seems. This is what happened. And then, yeah. And then after his wedding, like, after this bird boy born, like, birth of a child. Like, 1919, August, October 4. That is her birthday. He's posting in Facebook that happy birthday, Chetanah. Instead of Chetanah, he is putting in encoded numbers like 1 a for 1 b for 2 like that.
 
 -----------------------------
 
@@ -2927,11 +2927,11 @@ I know this hurts to hear, but these aren't the actions of someone who was capab
 
  I hear what you're saying - that eventually she did acknowledge the relationship and even shared your story with others as this romantic tale of childhood love. And you're right that the recent times weren't all bad, which makes the breakup more confusing.
 
-But I want to point out something important about what you just said: "If Vaishnavi is a problem, then I had gone through a larger problem and still I wanted to stay with her. But she doesn't do the same thing."
+But I want to point out something important about what you just said: "If someone is a problem, then I had gone through a larger problem and still I wanted to stay with her. But she doesn't do the same thing."
 
-This reveals a pattern of thinking that might be keeping you stuck. You're essentially saying "I tolerated her inappropriate relationship with the teacher, so she should tolerate my friendship with Vaishnavi." But this creates a dynamic where relationships become about enduring problems rather than building something healthy.
+This reveals a pattern of thinking that might be keeping you stuck. You're essentially saying "I tolerated her inappropriate relationship with the teacher, so she should tolerate my friendship with someone." But this creates a dynamic where relationships become about enduring problems rather than building something healthy.
 
-The reality is that healthy relationships shouldn't be about who can tolerate more dysfunction. The teacher situation was genuinely problematic and caused you real trauma. Her reaction to Vaishnavi, while hurtful to you, might have been her finally setting a boundary - even if it was the wrong boundary at the wrong time.
+The reality is that healthy relationships shouldn't be about who can tolerate more dysfunction. The teacher situation was genuinely problematic and caused you real trauma. Her reaction to someone, while hurtful to you, might have been her finally setting a boundary - even if it was the wrong boundary at the wrong time.
 
 Sometimes people leave not because the current problem is the biggest one, but because they've reached their limit or because they've been looking for an exit and found one they could justify.
 
@@ -3057,7 +3057,7 @@ These incidents, combined with everything else - the teacher situation, the fina
 
 -----------------------------
 
- So now, like, I don't know if she told that I will not drink or not, but she told, like, let's not drink now like that. Maybe she would have interest like, she told that now she tells that I I had a I wanted to drink like that. That is okay. After this incident, they went to astrologer An astrologer told something like this, like, it won't happen. Like, you should not, do a law marriage, and, you won't have a baby and all, and then it it might affect your father. All those things, the story told, I guess. Like, what happens is she's supposed to go to a concert. Okay. Just because she want to go to a concert, even I wanted to go to a concert, so I asked everyone. Nobody came. I asked my friends also. Nobody came. Then I posted on Reddit. After that only, I found Vaishnavi. But I couldn't go to consult with her. I just we just went to a book fair. So you under you understand the story right now. Like, this is how it linked Because you wanted to go to concert, I also wanted to go to Vice Navy, but we spoke a lot. And then that chat was seen by her. And that chat after seeing the chat, she checked and I was like, okay. Chetan used I mean, that is a reason. It says that this is the reason, but I don't know what exactly Before, knowing about, Vaishnavi, she told about, like, you are, you are not rich, you know, rich, rich enough. And then you, my parents won't accept you. And, you won't be fit for my family. And then you are getting tensed, and then like, I'm getting tensed because she's not letting me
+ So now, like, I don't know if she told that I will not drink or not, but she told, like, let's not drink now like that. Maybe she would have interest like, she told that now she tells that I I had a I wanted to drink like that. That is okay. After this incident, they went to astrologer An astrologer told something like this, like, it won't happen. Like, you should not, do a law marriage, and, you won't have a baby and all, and then it it might affect your father. All those things, the story told, I guess. Like, what happens is she's supposed to go to a concert. Okay. Just because she want to go to a concert, even I wanted to go to a concert, so I asked everyone. Nobody came. I asked my friends also. Nobody came. Then I posted on Reddit. After that only, I found someone. But I couldn't go to consult with her. I just we just went to a book fair. So you under you understand the story right now. Like, this is how it linked Because you wanted to go to concert, I also wanted to go to Vice Navy, but we spoke a lot. And then that chat was seen by her. And that chat after seeing the chat, she checked and I was like, okay. Chetan used I mean, that is a reason. It says that this is the reason, but I don't know what exactly Before, knowing about, someone, she told about, like, you are, you are not rich, you know, rich, rich enough. And then you, my parents won't accept you. And, you won't be fit for my family. And then you are getting tensed, and then like, I'm getting tensed because she's not letting me
 
 -----------------------------
 
@@ -3067,11 +3067,11 @@ These incidents, combined with everything else - the teacher situation, the fina
 1. Those two final fights (birthday cake + drinking incident)
 2. She went to an astrologer who told her not to do love marriage, it would harm her father, etc.
 3. She wanted to go to a concert, you also wanted to go but couldn't find anyone
-4. You found Vaishnavi through Reddit to go to concert, ended up at book fair instead
-5. She discovered your chats with Vaishnavi 
-6. But BEFORE she even knew about Vaishnavi, she was already telling you that you weren't rich enough, her parents wouldn't accept you, you weren't fit for her family
+4. You found someone through Reddit to go to concert, ended up at book fair instead
+5. She discovered your chats with someone 
+6. But BEFORE she even knew about someone, she was already telling you that you weren't rich enough, her parents wouldn't accept you, you weren't fit for her family
 
-This is crucial - she was already planning her exit before the Vaishnavi situation. The astrologer gave her the perfect excuse, and then Vaishnavi gave her the perfect scapegoat to blame the breakup on.
+This is crucial - she was already planning her exit before the someone situation. The astrologer gave her the perfect excuse, and then someone gave her the perfect scapegoat to blame the breakup on.
 
 Look at the pattern:
 - Financial reasons ("you're not rich enough")
@@ -3079,11 +3079,11 @@ Look at the pattern:
 - Astrology concerns ("will harm my father")
 - Your mental health ("you're getting tensed")
 
-She was building a case for leaving before Vaishnavi even entered the picture. The Vaishnavi incident just gave her a more palatable reason to blame the breakup on - "you were happy with someone else" sounds better than "you're not rich enough for my family."
+She was building a case for leaving before someone even entered the picture. The someone incident just gave her a more palatable reason to blame the breakup on - "you were happy with someone else" sounds better than "you're not rich enough for my family."
 
 The truth is she was probably looking for an out due to family pressure and the astrology consultation, but needed something to blame it on that made her look like the victim rather than someone ending things for superficial reasons.
 
-You didn't lose her because of Vaishnavi. You lost her because she was never going to choose you over her family's expectations and astrological beliefs.
+You didn't lose her because of someone. You lost her because she was never going to choose you over her family's expectations and astrological beliefs.
 
 -----------------------------
 
@@ -3095,11 +3095,11 @@ You didn't lose her because of Vaishnavi. You lost her because she was never goi
 
 Looking at this objectively, several concerning patterns emerge:
 
-**She was already planning to leave before Vaishnavi:**
+**She was already planning to leave before someone:**
 - Told you that you weren't rich enough
 - Said her parents wouldn't accept you
 - Cited astrology as reasons to end things
-- The Vaishnavi situation just gave her a more acceptable excuse
+- The someone situation just gave her a more acceptable excuse
 
 **Your mental health struggles became worse during this relationship:**
 - The teacher situation created genuine trauma
@@ -3719,7 +3719,7 @@ What's the use of telling you all this? Tell me. You really played me well. Tell
 
 Not even once. Not a single time did I get the assurance, "Partha, no matter what happens, I will not leave you." After that whole teacher incident became known, what did I say? "I'm leaving. Let me go." But you said, "No, no Partha, I won't leave you." I told you then, "If I come back to you now, you cannot leave me no matter what." You nodded your head yes to all of that, you said all the right things, and now... you're leaving. I don't even know what the reason is, first of all.
 
-Then you bring up talking to Vaishnavi. That girl simply cheated on me and left. She didn't talk at all... meaning, no matter what I said, she just acted like she liked it, but that wasn't her real self. When things are like this, everyone is just cheating me and leaving. Look, I'll say it again. I only saw that girl as a friend. Many girls and guys call me "Pannikutty" (little piglet). That doesn't mean they're liking me or having sex with me. You shouldn't talk nonsense about things you don't know. "Pannikutty" is a nickname. You also called someone "Bunny," you called someone this and that... you did many things. I never questioned any of it. Okay?
+Then you bring up talking to someone. That girl simply cheated on me and left. She didn't talk at all... meaning, no matter what I said, she just acted like she liked it, but that wasn't her real self. When things are like this, everyone is just cheating me and leaving. Look, I'll say it again. I only saw that girl as a friend. Many girls and guys call me "Pannikutty" (little piglet). That doesn't mean they're liking me or having sex with me. You shouldn't talk nonsense about things you don't know. "Pannikutty" is a nickname. You also called someone "Bunny," you called someone this and that... you did many things. I never questioned any of it. Okay?
 
 I'll say it again. As far as I know... I should be proud of myself, okay? I'm not like other guys. I never told you, "Don't do this, don't do that." Okay? You do whatever you want. I only asked for some of your time. You didn't even give me that. Okay?
 

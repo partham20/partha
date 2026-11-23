@@ -5,11 +5,11 @@ Transcript: `Oct 23 2026 - 3am monologue.txt` (about 50 minutes, recorded alone 
 ## What you talked about, in order
 
 1. **Fact, truth and responsibility.** Some things must be assumed before anything can be said. Does responsibility need an identity, or a self, behind it?
-2. **Do we need anyone?** "A person talking to me feels good" vs "a new iPhone feels good". Is connection just biology? Why does Prasanna's motherly love go to one person and not to everyone? Why continue the species at all?
+2. **Do we need anyone?** "A person talking to me feels good" vs "a new iPhone feels good". Is connection just biology? Why does someone's motherly love go to one person and not to everyone? Why continue the species at all?
 3. **Schopenhauer and Mainländer.** You wondered whether you'd think like this if your situation were different.
 4. **The trek.** Strangers' trips posted by Iravisai Inba (Meta Monkeys, seen on a podcast). The Kotagiri one is on a Friday and you're short on leave. "I should try it."
 5. **Talking to an LLM.** It knows your context, but outsourcing your decisions to it makes you feel more alienated and less human. Regret straight after you act.
-6. **Sanjana.** You suddenly said you love her and asked yourself whether that's anaesthesia: the belief that talking to her will make things better. After 1.5 hours with her: "maybe she's right."
+6. **Someone.** You suddenly said you love her and asked yourself whether that's anaesthesia: the belief that talking to her will make things better. After 1.5 hours with her: "maybe she's right."
 7. **"Maybe."** You caught yourself saying maybe, I guess, I think. Not taking a stand sometimes is fine; never taking one is the problem.
 8. **4:09 AM.** Alarms at 6:30 and 6:42, office before 7, "but what's the purpose of going home early?"
 9. **Goals.** US admission, then a visa slot that never came, then Germany. You don't actually know why you want to leave, and right now you feel fine.
@@ -21,7 +21,7 @@ Transcript: `Oct 23 2026 - 3am monologue.txt` (about 50 minutes, recorded alone 
 15. **Love = being there.** You can't fix someone, so just stay with them. *"வானம்தான் விழுந்தாலும்… எப்போதும் உனக்காக நான் இருப்பேன்."*
 16. **Melvin.** The one senior who stuck around. He says "you're not like before." Your reply: how can I be like before when I don't remember how I was?
 17. **Discrete self.** Exist this moment, die, and a new guy arrives the next second. Pain is subjective, and not every injection hurts everyone the same.
-18. **Morality is upbringing.** Amma on clothing vs a girl in California. Monogamy as something we invented. You now half-agree with Vineeth and Prasanna. Lust vs love, love as a subset. Even selflessness is selfish.
+18. **Morality is upbringing.** Amma on clothing vs a girl in California. Monogamy as something we invented. You now half-agree with Vineeth and someone. Lust vs love, love as a subset. Even selflessness is selfish.
 19. **Breaking your own system.** "I'm challenging the philosophy I built over five or six years." Suffering needs a self.
 20. **Why document at all?** You want to possess the moment, like a saved photo you'll never open. Curiosity: *"தேடல் உள்ள உயிர்களுக்கு தினமும் பசி இருக்குமா?"*
 21. **Philosophers and silence.** Camus, Nietzsche, amor fati. Maybe the answer is silence, and everything we do is a distraction from it.
@@ -38,7 +38,7 @@ Transcript: `Oct 23 2026 - 3am monologue.txt` (about 50 minutes, recorded alone 
 
 **"Maybe."** You diagnosed it yourself, so here's a small, concrete experiment: one sentence a day said with no hedge. For example: "I'm going on the Kotagiri trek." "I don't know why I want to leave India, and that's okay for now." It doesn't have to be a big stand, only a definite one.
 
-**Sanjana.** You asked the sharp question yourself: is this anaesthesia? From what you've told me before, she has said clearly, more than once, that she won't pursue a relationship. The 1.5-hour talk sounds like it helped because someone listened, which links straight back to your point about being there.
+**Someone.** You asked the sharp question yourself: is this anaesthesia? From what you've told me before, she has said clearly, more than once, that she won't pursue a relationship. The 1.5-hour talk sounds like it helped because someone listened, which links straight back to your point about being there.
 
 **On outsourcing your thinking to an LLM:** you're right, and I'd rather you keep it that way. That's why these notes give your threads back to you instead of verdicts. Use me as the hard disk and keep the decisions yourself.
 
