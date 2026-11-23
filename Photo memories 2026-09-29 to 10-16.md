@@ -8,5 +8,5 @@ Shared by paartha in the project on 2026-10-20 (from his phone's photo memories)
 - **8 Oct 2026, Honda BigWing Visit:** Honda BigWing showroom in Bengaluru with Abhay, Santhosh and Christy; looks like Abhay got a new motorcycle.
 - **9 Oct 2026, Electronics & Tech Project:** in Bommasandra working on a computers/electronics hardware project with Rishi and Abhay.
 - **13 Oct 2026, Solo Snapshot:** a smiling selfie.
-- **14 Oct 2026, Movies & Ice Cream:** movies in Bengaluru with Rani, ice cream, and one more movie with Dhilip.
+- **14 Oct 2026, Movies & Ice Cream:** movies in Bengaluru with someone, ice cream, and one more movie with Dhilip.
 - **15–16 Oct 2026, Playful Selfies:** a couple of fun selfies.

@@ -302,7 +302,7 @@ Based on your history and psychological patterns, here are the likely reasons wh
 
 ### 3. Validation of Worth (Ego and Self-Esteem)
 *   **What it is:** For many men, feeling "chosen" or listened to by a woman is a huge boost to self-esteem. It signals, "I am worthy, I am attractive, I am interesting."
-*   **Your Context:** The breakup made you feel rejected and "not good enough" (the comparison with the teacher, the fear she'll marry someone better). Talking to a girl (like Sanjana or someone on Reddit) gives you a hit of dopamine that says, "See? A girl still wants to talk to me. I am not worthless." It counters the rejection wound.
+*   **Your Context:** The breakup made you feel rejected and "not good enough" (the comparison with the teacher, the fear she'll marry someone better). Talking to a girl (like a few people on Reddit) gives you a hit of dopamine that says, "See? A girl still wants to talk to me. I am not worthless." It counters the rejection wound.
 
 ### 4. The "Intimacy" Craving
 *   **What it is:** Loneliness isn't just about words; it's about intimacy. Men often rely solely on female partners for emotional vulnerability.
